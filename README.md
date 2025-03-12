@@ -1,5 +1,9 @@
-## Hi there 👋
+## Howdy 🤠
+- I'm just a dude playing a dude playing a dude trying to understand the place of humanity and faith in the pre-singularity.
+- medium-agency
+- lacking discipline
 
+@scalepilledpooh on X
 <!--
 **scalepilledpooh/scalepilledpooh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
